@@ -50,7 +50,7 @@ In September 2023, LagGang officially shuts down with a message from TNT_Jesse, 
 - Plansdende (founder)
 - TomPlaneta (founder)
 - PSG_YT
-- [C1yd31](../Players/clyde.md)
+- [C1yd3i](../Players/clyde.md)
 
 ### Other Members
 
